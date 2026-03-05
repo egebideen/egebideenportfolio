@@ -8,4 +8,10 @@ My goal is to help small businesses and food brands leverage digital platforms t
 
 Key Skills:
 • Social Media Marketing
-• Facebook & Instagram
+• Facebook & Instagram Ads (Meta Ads)
+• Lead Generation Campaigns
+• Marketing Funnel Strategy
+• Audience Targeting & Segmentation
+• Digital Marketing Strategy
+
+I am always interested in connecting with professionals, business owners, and organizations looking to grow through digital marketing.
